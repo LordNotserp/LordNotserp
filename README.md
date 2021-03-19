@@ -1,0 +1,5 @@
+- 👋 Hi I'm Notserp
+- 👀 I’m interested in making Towa game
+- 🌱 I’m currently learning how to make Towa game
+- 💞️ I’m looking to collaborate on Towa game
+- 📫 How to reach me email me (do not do this unless it is about Towa game)
